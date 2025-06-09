@@ -8,6 +8,7 @@ My blog: blog.oxiilo.com
 
 [QQ](tencent://AddContact/?fromId=45&fromSubId=1&subcmd=all&uin=2286451383website=www.oicqzone.com)
 
+ <a href="tencent://AddContact/?fromId=45&fromSubId=1&subcmd=all&uin=2286451383&website=www.oicqzone.com">点击添加我的QQ为好友</a> 
 <!--
 **axuanran/axuanran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
