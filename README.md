@@ -1,7 +1,10 @@
 ## Hi there 👋
 
- - 📫 please contact me with wechat: Xuanran014 or telegram: t.me/xuanranchat
- - 💬 Ask me about everything you interested! 
+📫 please contact me with wechat: Xuanran014 or telegram: t.me/xuanranchat
+
+💬 Ask me about everything you interested!
+
+My blog: blog.oxiilo.com
 
 <!--
 **axuanran/axuanran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
