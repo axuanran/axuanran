@@ -6,7 +6,7 @@
 
 My blog: blog.oxiilo.com
 
-[my QQ](tencent://AddContact/?fromId=45&fromSubId=1&subcmd=all&uin=2286451383website=www.oicqzone.com)
+[QQ](tencent://AddContact/?fromId=45&fromSubId=1&subcmd=all&uin=2286451383website=www.oicqzone.com)
 
 <!--
 **axuanran/axuanran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
