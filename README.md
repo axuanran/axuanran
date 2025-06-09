@@ -2,7 +2,7 @@
 
 📫 please contact me with wechat: Xuanran014 or telegram: t.me/xuanranchat
 
-💬 Ask me about everything you interested!
+💬 Ask me about everything you interested! 😘 I'm willing chat with you.
 
 My blog: blog.oxiilo.com
 
