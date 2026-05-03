@@ -1,10 +1,10 @@
-## Hi there 👋
+Hi there 👋
 
-📫 please contact me with wechat: Xuanran014 or telegram: t.me/xuanranchat
+📫 Feel free to reach me on WeChat: Xuanran014 or Telegram: t.me/xuanranchat
 
-💬 Ask me about everything you interested! 😘 I'm willing chat with you.
+😘 Random chats welcome—I’m all ears!
 
-My blog: blog.oxiilo.com
+🌐 Check out my blog: blog.oxiilo.com
 
 <!--
 **axuanran/axuanran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
