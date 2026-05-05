@@ -1,9 +1,10 @@
 Hi there 👋
 
 📫 Feel free to reach me on 
-WeChat: Xuanran014
-Telegram: t.me/xuanranchat
-QQ：2286451383
+
+ - Telegram: t.me/xuanranchat  （perfer）
+ - QQ：2286451383(perfer)
+ - WeChat: Xuanran014 (ok if you like)
 
 😘 Random chats welcome
 
