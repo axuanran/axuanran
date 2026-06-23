@@ -7,7 +7,7 @@ Hi there 👋
  - QQ：2286451383
 
 
-😘 Random chats welcome
+😘 Random chats welcome,  everythings is ok ,  such as things you like
 
 🌐 My blog: blog.oxiilo.com
 
