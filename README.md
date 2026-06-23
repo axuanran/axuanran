@@ -2,9 +2,10 @@ Hi there 👋
 
 📫 Feel free to reach me on 
 
+ - WeChat: Xuanran014 (perfer)
  - Telegram: t.me/xuanranchat  （perfer）
- - QQ：2286451383(perfer)
- - WeChat: Xuanran014 (ok if you like)
+ - QQ：2286451383
+
 
 😘 Random chats welcome
 
