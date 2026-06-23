@@ -1,13 +1,16 @@
 Hi there 👋
 
-📫 Feel free to reach me on 
+I’m looking to meet more people and make new friends.
 
- - WeChat: Xuanran014 (perfer)
- - Telegram: t.me/xuanranchat  （perfer）
- - QQ：2286451383
+📫 Feel free to reach out to me:
 
+- WeChat: Xuanran014 (preferred)
+- Telegram: t.me/xuanranchat (preferred)
+- QQ: 2286451383
 
-😘 Random chats welcome,  everythings is ok ,  such as things you like
+Random chats are totally welcome. You can start with anything — maybe something you like recently.
+
+Just adding me is fine too.
 
 🌐 My blog: blog.oxiilo.com
 
